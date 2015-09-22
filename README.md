@@ -1,1 +1,1 @@
-# 24.-Soleha - judul
+# 24.-Soleha
